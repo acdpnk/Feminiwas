@@ -1,3 +1,3 @@
 # Woher kommen eigentlich Rockstars?
 
-¯\_(ツ)_/¯ 
+¯\\_(ツ)_/¯ 
