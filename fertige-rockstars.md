@@ -1,3 +1,2 @@
 # Woher kommen eigentlich Rockstars?
 
-?!
